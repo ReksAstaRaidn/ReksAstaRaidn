@@ -1,5 +1,5 @@
 # hi i'm Reksa
-<br><br><br>i do code, editing, photograph and enjoying nature<br><br>also i have interest in machine learning, computer hardware and network<br><br><br>
+i do code, editing, photograph and enjoying nature<br><br>also i have interest in machine learning, computer hardware and network<br><br><br>
 
 
 ## 🌐 Socials:
