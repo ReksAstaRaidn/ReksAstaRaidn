@@ -1,5 +1,5 @@
-# hi i'm Reksa
-i do code, editing, photograph and enjoying nature<br><br>also i have interest in computer hardware and network<br><br><br>
+# WELCOME
+i love it if it comes to hardware<br><br><br>
 
 
 ## Socials:
