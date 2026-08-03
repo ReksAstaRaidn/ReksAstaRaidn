@@ -1,5 +1,5 @@
 # WELCOME
-i love it if it comes to hardware<br><br><br>
+i love it when it comes to hardware<br>
 
 
 ## Socials:
