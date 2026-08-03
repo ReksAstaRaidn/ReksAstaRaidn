@@ -1,5 +1,6 @@
 # WELCOME
 i love it when it comes to hardware<br>
+computer hardware enthusiast<br>
 
 
 ## Socials:
