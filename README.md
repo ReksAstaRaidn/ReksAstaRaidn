@@ -1,4 +1,4 @@
-# WELCOME
+# HI
 i love it when it comes to hardware<br><br>computer hardware enthusiast<br>
 
 
